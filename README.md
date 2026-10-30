@@ -1,0 +1,1 @@
+# global-bloodstrike-series
